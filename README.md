@@ -1,0 +1,51 @@
+# 嵐 – ｢未完｣
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+All the time 隠し持っていた素顔
+Don't you call my name
+夢から醒めるたび 新しくCome alive again
+Never change my mind 振り向けば遠くなる「今」
+I can't lose myself 無くしちゃいけないモノを
+In my heart 陰を光に変え Time to shine 扉開いて
+Now! Now! Now! 望む方へとRun away
+Dive! Dive! Dive! 今こそYou must find it
+変わる事のないAnswer
+この手で壊したいなら I know it
+There is no turning back,
+there is no looking back
+That is what I've always wanted
+見つめてCan you see? Oh baby
+Do you wanna ride!?
+I'm running in the light now 高鳴る鼓動が
+合図になる I'll get it anyway
+I'm running in the light now 立ち止まることなく
+And I'm gonna make my world
+暗闇から光
+"僕らが拓いていく時代"
+なんてあの頃はいきがり
+いま、夢の先の未来
+後ろなんて見ない
+ただそう前だけしか見ない
+目の前は誰もいない
+その未来自分次第
+Running running, never gonna stop it
+Running running, never gonna stop it
+ohもう止まれない
+時代の流れに飲まれない
+自分で自分を育てたいならただただ
+ひたすらもがけ ファイト
+輝き出す未完成の「I」
+Now! Now! Now! 決めた方へとRun away
+Dive! Dive! Dive! 全てはYou must find it
+確かな事はStay here 気付けば答えになる I knew it
+There is no turning back,
+there is no looking back
+That is what I've always wanted
+見つめてCan you see? Oh baby
+Do you wanna ride!?
+Do you wanna ride!?
+響け Release my soul, Oh baby
+Do you wanna ride!?
+```
